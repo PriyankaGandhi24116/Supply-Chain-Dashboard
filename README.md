@@ -163,7 +163,7 @@ https://github.com/PriyankaGandhi24116/Supply-Chain-Dashboard
 
 LinkedIn profile :
 
-https://www.linkedin.com/in/priyanka-gandhi-b951b2436?utm_source=share_via&utm_content=profile&utm_medium=member_android
+https://www.linkedin.com/in/priyanka-gandhi-b951b2436
 ---
 
 ## ⭐ Support
